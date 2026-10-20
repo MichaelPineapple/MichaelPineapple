@@ -1,1 +1,1 @@
-(100% Organic Code)
+FDA Approved 100% Organic Code
